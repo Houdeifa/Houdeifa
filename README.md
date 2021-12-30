@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Houdeifa AFLIHAOU
+- 👀 I’m Embadded system Ingenieer who is interested on new Tech and Programming projects
+- 📫 You can reach me via email : Houdeifa.aflihaou@gmail.com
